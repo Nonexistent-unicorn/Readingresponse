@@ -1,4 +1,4 @@
-# Readingresponse
+# Reading Response
 
 Most people want or expect videogames to be fun and lighthearted, but that isn’t what a video game is about to me.
 A good video game embodies hardships and makes you feel emotions, just like any other form of art or media should.
